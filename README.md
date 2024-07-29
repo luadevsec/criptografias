@@ -1,0 +1,2 @@
+# criptografias
+ nome autosujestivo kkkkkk
